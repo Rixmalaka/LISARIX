@@ -29,7 +29,7 @@ Project created by <a href="https://github.com/Amal-ser">Amal-ser</a> to make it
 
 ## Instagram  Follow ❤️
 
-https://www.instagram.com/p/CCdcH3FBd1a/?utm_medium=copy_link
+https://instagram.com/rix_lisa_?utm_medium=copy_link
 
 
   ### Simple Method
